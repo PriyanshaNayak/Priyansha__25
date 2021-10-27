@@ -13,6 +13,9 @@
 
 •😄 Pronouns: She/Her
 
+🎧Ask me about books and movies 
+
+I believe in "Simple Living and High Thinking".
 #### Connect with me 🤝 :
 priyanshanayak233@gmail.com
 
